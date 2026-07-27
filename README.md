@@ -6,3 +6,4 @@ PS3 bootup
 Vib-Ribbon Intro
 "Find Her" by Toby Fox
 Asgore's voice.
+And Tom Catio was named after a Rhythm Paradise Groove character.
